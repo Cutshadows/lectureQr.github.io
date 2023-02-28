@@ -20,6 +20,6 @@ Cambios en nuestra política de privacidad
 Podemos actualizar esta política de privacidad en cualquier momento. Le notificaremos de cualquier cambio importante en esta política mediante la publicación de la política de privacidad actualizada en la aplicación o mediante el envío de una notificación a su dirección de correo electrónico.
 
 Contáctenos
-Si tiene preguntas o inquietudes acerca de nuestra política de privacidad o nuestras prácticas de privacidad, por favor contáctenos en [dirección de correo electrónico].
+Si tiene preguntas o inquietudes acerca de nuestra política de privacidad o nuestras prácticas de privacidad, por favor contáctenos en contactocjcr@gmail.com.
 
 ¡Gracias por utilizar nuestra aplicación!
